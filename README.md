@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @VolaWTFFF IS A KILOMETER 🦅🦅🦅🇺🇸🇺🇸🇺🇸
+WTFFF IS A KILOMETER 🦅🦅🦅🇺🇸🇺🇸🇺🇸
 
 <!---
 Volalo/Volalo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
