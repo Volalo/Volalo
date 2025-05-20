@@ -1,7 +1,4 @@
-- 👋 Hi, I’m @Volalo
-- 👀 I’m interested in Coding 
-- 🌱 I’m currently learning nothing
-- 💞️ I’m looking to collaborate oncabsolute beginner projects
+- 👋 Hi, I’m @VolaWTFFF IS A KILOMETER 🦅🦅🦅🇺🇸🇺🇸🇺🇸
 
 <!---
 Volalo/Volalo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
